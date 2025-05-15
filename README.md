@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **On my Workers Association Form**
 
-- 💬 Ask me about **Figm Designing I know stuffs**
+- 💬 Ask me about **Figma Designing I know stuffs**
 
 - 📫 How to reach me **johnnerodacles@gmail.com**
 
